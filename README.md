@@ -1,0 +1,1 @@
+# NDVI-Arh2026-06_Bgr_Juli_23
